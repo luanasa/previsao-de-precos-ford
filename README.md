@@ -1,1 +1,0 @@
-# previsao-de-precos-ford
